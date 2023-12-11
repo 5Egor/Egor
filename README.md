@@ -1,1 +1,1 @@
-11w1qw# Egor
+1qw# Egor
