@@ -1,1 +1,1 @@
-йxaqaz1qw# Egor
+qw# Egor
