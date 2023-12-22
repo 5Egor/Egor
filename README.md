@@ -1,1 +1,1 @@
-zsnqw# Egor
+# Egor
