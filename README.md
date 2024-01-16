@@ -1,6 +1,6 @@
 adsdgz# Egor
 aasdsadad
-trytdfsdsdssf
+try
 daaddfgfgfsf
 dfsdfssweqe
 zxcczфЫЫыыф
