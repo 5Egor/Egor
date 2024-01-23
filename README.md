@@ -6,8 +6,5 @@ dfsdfssweqe
 zxcczфЫЫыыф
 dsyuyufsgsg
 hfhthtgfhfdghggdfgdfgd
-hgfhgfhfg
-wdwdawd
-bjghjfjdthytry
-gfgfgfdg
+hg
 hghhxfxfgzgz
