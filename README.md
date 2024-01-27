@@ -4,6 +4,4 @@ try
 daaddfgfgfsf
 dfsdfssweqe
 zxcczфЫЫыыф
-dsyuyufsgsg
-hfht
 ufjyuyud
