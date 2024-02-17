@@ -4,7 +4,4 @@ try
 daaddfgfgfsf
 ывывыфВфф
 vcxvvvcv
-HJFGHFGFDGD
-cvccxzcszcz
-bcbfxvsdfSFsa
 f
